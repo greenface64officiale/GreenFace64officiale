@@ -1,16 +1,14 @@
-## Hi there 👋
+## Hey there!
 
-<!--
-**greenface64officiale/greenface64officiale** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+## I'm PaperMarioGuy79, SDM32, or GreenFace64(I only use that name on Github)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Stuff I'm doing
+
+- I’m currently working on The Ultimate SM64 Beta Pack and SM64 Classified Rom Pack
+- Ask Me Anything, ask me any questions!
+- How to reach me: not giving my email idiot
+- Pronouns: he/him or they/them😄
+- Fun fact: I am the creator of Project PLEXUS (Coming soon!)
+- 13
+- FulpTuber
