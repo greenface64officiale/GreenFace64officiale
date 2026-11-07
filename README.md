@@ -1,7 +1,7 @@
 ## Hey there!
 
 
-## I'm PaperMarioGuy79, SDM32, or GreenFace64(I only use that name on Github)
+## I'm PaperMarioGuy79, TehLuigi9Prod, Lu9, or GreenFace64(I only use that name on Github)
 
 Stuff I'm doing
 
